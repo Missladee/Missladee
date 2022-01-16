@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Missladee
-- 👀 I’m interested in ...Anime, Art, Game and Music
+- 👀 I’m interested in ...Anime, Art, Games and Music
 - 🌱 I’m currently learning ...Code and 3d modeling
 - 💞️ I’m looking to collaborate on ...Game making.
 - 📫 How to reach me ...Just msg me.
